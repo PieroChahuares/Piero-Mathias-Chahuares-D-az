@@ -1,2 +1,2 @@
-# Piero-Mathias-Chahuares-D-az
+# Piero-Mathias-Chahuares-Diaz
 Piero Mathias Chahuares Díaz
